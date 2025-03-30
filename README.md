@@ -43,4 +43,4 @@ We may update this policy from time to time. Changes will be posted within the a
 9. Contact Us
 If you have any questions about this privacy policy, please contact us at:
 
-📧 Email: [your-email@example.com]
+📧 Email: [alessiohaifa@gmail.com]
